@@ -1,4 +1,8 @@
-- Hi, I’m 0xYuki
+Hi everyone, I’m 0xYuki.
+I'm from Jakarta, Indonesia.
+My dreams just only one, living in Japan for entire my life :)
+You can call me Taka/Yuki/Tkmii/Sora.
+don't be hesited for chat me or call me. Thanks!
 - ----------------------------
 - Leader of 0xA0Z0R4 CTF Team.
 - I’m currently learning Python & Exploit
@@ -7,9 +11,10 @@
 -            Cryptography
 -            Script ~/not a script kittie :) 
 Reach me on:
--       (https://www.instagram.com/0xtakayuki/)
--       (https://twitter.com/0xTakayuki)
--       @Tk_Mii
+-       Instagram : @0xtakayuki
+-       Twitter   : @0xTakayuki
+-       Telegram  : @Tk_Mii
+-       Discord   : 0xtakayuki
 -----------------------------
    ~ Yuki is good one.. ~
      Anime is MY W0RLD
