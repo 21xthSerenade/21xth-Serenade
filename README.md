@@ -7,12 +7,12 @@
 -            Cryptography
 -            Script ~/not a script kittie :) 
 Reach me on:
--            Instagram : @0xTakayuki
--            Twitter   : @0xtakayuki
--            Telegram  : @0xYuki
+-       (https://www.instagram.com/0xtakayuki/)
+-       (https://twitter.com/0xTakayuki)
+-       @Tk_Mii
 -----------------------------
    ~ Yuki is good one.. ~
-Fun fact: Anime is MY W0RLD
+     Anime is MY W0RLD
 
 <!---
 0xTakayuki/0xTakayuki is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
