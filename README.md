@@ -9,12 +9,12 @@ don't be hesited for chat me or call me. Thanks!
 - I’m so interested
 -            Hacking
 -            Cryptography
--            Script ~/not a script kittie :) 
+-            Script ~/not a script kittie :x
 Reach me on:
--       Instagram : @0xtakayuki
--       Twitter   : @0xTakayuki
--       Telegram  : @Tk_Mii
--       Discord   : 0xtakayuki
+-       Instagram : @021xth_serenade
+-       Twitter   : @21xth_Serenade
+-       Telegram  : @21xth_Serenade
+-       Discord   : 21xthSerenade
 -----------------------------
    ~ Yuki is good one.. ~
      Anime is MY W0RLD
