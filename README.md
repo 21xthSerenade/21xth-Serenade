@@ -1,19 +1,19 @@
-Hi everyone, I’m 0xYuki.
+Hi everyone, MegurineX.
 I'm from Jakarta, Indonesia.
-My dreams just only one, living in Japan for entire my life :)
-You can call me Taka/Yuki/Tkmii/Sora.
-don't be hesited for chat me or call me. Thanks!
+don't be hesited for chat me
+Thanks!
 - ----------------------------
 - Leader of 0xA0Z0R4 CTF Team.
-- I’m currently learning Python & Exploit
+- I’m currently learning
+- Python, C++, Java, Php
 - I’m so interested
 -            Hacking
 -            Cryptography
 -            Script ~/not a script kittie :x
 Reach me on:
--       Instagram : @021xth_serenade
+-       Instagram : @l4wl3t_404
 -       Twitter   : @21xth_Serenade
--       Telegram  : @21xth_Serenade
+-       Telegram  : @MegurineChan
 -       Discord   : 21xthSerenade
 -----------------------------
    ~ Yuki is good one.. ~
